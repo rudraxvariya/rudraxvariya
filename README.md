@@ -2,7 +2,7 @@
 
 - 🎓 I am a graduate student from LDRP-ITR (KSV University).
   
-- 👨‍💻 Software Developer having 3.5+ years of Industry Experience.
+- 👨‍💻 Software Developer having 4+ years of Industry Experience.
   
 - 🌟 I prioritize self-motivation and enthusiasm and constantly seek to expand my knowledge and skill set.
   
